@@ -1,4 +1,4 @@
-- hello! I'm Meomeww¿? 
+- hello! I'm gerkyles! 
 - she/he
 
 <!---
